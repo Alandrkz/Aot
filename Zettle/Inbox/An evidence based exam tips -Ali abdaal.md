@@ -1,3 +1,0 @@
-#course
-Tag:: #skillshare
-raedsfdfdsfsa
